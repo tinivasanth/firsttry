@@ -1,0 +1,1 @@
+Monkey,rat and cat were friends in a forest
